@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kykeykk
-- 👀 I’m interested in everything what have someting shared with sport
+- 👀 I’m interested in everything what have something shared with sport
 - 🌱 I’m currently learning two launguage English and Japan
 - 💞️ I’m looking to collaborate on Every one :P 
 - 📫 How to reach me U can catch my here -> https://www.instagram.com/papajerokotumoe/
